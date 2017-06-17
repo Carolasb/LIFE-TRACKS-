@@ -1,3 +1,3 @@
 # LIFE-TRACKS-
-fresh ideation
+fresh ideation-  
 Nowness-Oneness
